@@ -1,2 +1,2 @@
 # first•ᴗ•scripts
-◡‿›◡proud of any first step
+◡‿›◡proud of any first step!
